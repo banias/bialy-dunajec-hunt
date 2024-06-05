@@ -53,6 +53,6 @@
  3.  Fotografia członka drużyny w tradycyjnym stroju góralskim.
  4.  Znajdź co najmniej dwie z trzech rzeźb na szlaku Wojciecha Kułach-Wawrzyńcoka, które znajdują się w Białym Dunajcu 
    
-   ![alt text](image-8.png =250x) 
-   ![alt text](image-9.png =250x)
-   ![alt text](image-11.png =250x)
+   ![alt text](image-8.png) 
+   ![alt text](image-9.png)
+   ![alt text](image-11.png)
