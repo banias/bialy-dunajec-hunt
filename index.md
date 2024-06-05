@@ -20,12 +20,14 @@
 3\.    Zdjęcie drużyny przy tradycyjnej chacie góralskiej.
 
 4\.    Zdjęcie drużyny na tle panoramy Tatr.
+
 ## Zadania za 25 punktów:
 5\.    Zdjęcie z drużyną pozującą jak "ninja" na tle Kościoła Parafialnego w Białym Dunajcu.
 
 6\.    Zrób selfie z "trzema gwiazdkami i rybą". 
 
 7\.    Zrób zdjęcie, na którym cała drużyna skacze w powietrzu (żadna noga nie dotyka ziemi).
+
 ### Znajdź miejsce i prześlij dowód
 8\.    ![alt text](image-1.png)
 
@@ -38,6 +40,7 @@
 12\.    ![alt text](image-7.png)
 
 13\.    ![alt text](image.png)
+
 ### Rozwiąż zagadkę i wyślij zdjęcie z rozwiązaniem
 14\.    Kiedy jest używany, ma sześć nóg.
 
@@ -59,13 +62,14 @@
 22\.     Nawiąż sojusz z inną drużyną i stwórzcie wspólny występ taneczny do polskiej piosenkiludowej (nagrajcie to).
 
 23\.     Znajdź miejsce i wyślij dowód ![alt text](image-4.png)
+
 ## Zadania za 100 punktów
  24\.     Nagranie lokalnego mieszkańca opowiadającego o tradycjach góralskich.
 
  25\.     Nagranie lokalnego mieszkańca jak mówi "Biały Dunajec to najpiękniejsze miejsce na ziemi!".
 
  26\.     Fotografia członka drużyny w tradycyjnym stroju góralskim.
- 
+
  27\.     Znajdź co najmniej dwie z trzech rzeźb na szlaku Wojciecha Kułach-Wawrzyńcoka, które znajdują się w Białym Dunajcu 
    
    ![alt text](image-8.png) 
