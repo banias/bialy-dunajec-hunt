@@ -17,12 +17,10 @@
 2.    Zdjęcie drużyny "łowiącej ryby" w rzece Biały Dunajec.
 3.    Zdjęcie drużyny przy tradycyjnej chacie góralskiej.
 4.    Zdjęcie drużyny na tle panoramy Tatr.
-
 ## Zadania za 25 punktów:
 5.    Zdjęcie z drużyną pozującą jak "ninja" na tle Kościoła Parafialnego w Białym Dunajcu.
 6.    Zrób selfie z "trzema gwiazdkami i rybą". 
 7.    Zrób zdjęcie, na którym cała drużyna skacze w powietrzu (żadna noga nie dotyka ziemi).
- 
 ### Znajdź miejsce i prześlij dowód
 8.    ![alt text](image.png)
 8.    ![alt text](image-1.png)
@@ -30,7 +28,6 @@
 11.    ![alt text](image-3.png)
 12.    ![alt text](image-6.png)
 13.    ![alt text](image-7.png)
-  
 ### Rozwiąż zagadkę i wyślij zdjęcie z rozwiązaniem
 14.   Kiedy jest używany, ma sześć nóg.
 15.   Kiedy przez nie przechodzisz, musisz zdjąć kapelusz.
@@ -40,12 +37,9 @@
 19.   Duża kiedy jest nowonarodzona, mała jak umiera.
 20.   Jestem mokry, kiedy schnę.
 21.   Bez skrzydeł lata, bez oczu płacze.
-   
-
 ## Zadania za 50 punktów:
 22.    Nawiąż sojusz z inną drużyną i stwórzcie wspólny występ taneczny do polskiej piosenkiludowej (nagrajcie to).
 23.    Znajdź miejsce i wyślij dowód ![alt text](image-4.png)
-- 
 ## Zadania za 100 punktów
  24.    Nagranie lokalnego mieszkańca opowiadającego o tradycjach góralskich.
  25.    Nagranie lokalnego mieszkańca jak mówi "Biały Dunajec to najpiękniejsze miejsce na ziemi!".
