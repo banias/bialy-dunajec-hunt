@@ -64,11 +64,13 @@
 23\.     Znajdź miejsce i wyślij dowód ![alt text](image-4.png)
 
 ## Zadania za 100 punktów
- 24\.     Nagranie lokalnego mieszkańca opowiadającego o tradycjach góralskich.
+ 24\.     Nagraj lokalnego mieszkańca opowiadającego o tradycjach góralskich.
 
- 25\.     Nagranie lokalnego mieszkańca jak mówi "Biały Dunajec to najpiękniejsze miejsce na ziemi!".
+ 25\.     Nagraj lokalnego mieszkańca jak mówi "Biały Dunajec to najpiękniejsze miejsce na ziemi!".
 
  26\.     Fotografia członka drużyny w tradycyjnym stroju góralskim.
+
+ 28\.     Zrób sobie selfie z Harrym (aka Tonym).
 
  27\.     Znajdź co najmniej dwie z trzech rzeźb na szlaku Wojciecha Kułach-Wawrzyńcoka, które znajdują się w Białym Dunajcu 
    
